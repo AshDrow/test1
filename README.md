@@ -9,4 +9,3 @@ wswfasdfsasdfaasdfasdf
 
 здесь был я
 
-и снова я побывал
